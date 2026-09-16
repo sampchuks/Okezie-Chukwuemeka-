@@ -1,4 +1,3 @@
-# Okezie-Chukwuemeka-
 # Dr. Okezie Sampson Chukwuemeka
 
 ### Chief Research Fellow | Meteorologist | Agrometeorologist | Climate & Environmental Researcher
